@@ -33,7 +33,7 @@ Initial provenance deposit of Chapter 1 narrative.
 
 ### Optional Proof-of-Remembrance
 
-- **IPFS CID:** pending  
+- **IPFS CID:** bafkreic7xzrlyrclvesnagjsochdbxodpew26ci4ump2h6df4kmpey44dq   
 - **SHA-256 Hash:** pending  
 
 **Related Domains:**  
