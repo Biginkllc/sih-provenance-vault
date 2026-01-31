@@ -670,7 +670,152 @@ Virality had not overwritten origin.
 The modern world had moved fast…
 
 but remembrance had moved with it.
+---
 
+## Chapter 1.3 (Working Narrative)  
+### When the World Began to Build Together
+Chapter 1.3 (Working Narrative)
+When the World Began to Build Together
+
+Once ideas were no longer afraid of being lost, something unexpected happened.
+
+People began sharing more freely than ever before.
+
+Where once creators hesitated — worried their work might be taken, reshaped, or overshadowed — now there was confidence. Each contribution carried a visible origin. Each spark of creativity was anchored in memory before it traveled.
+
+An idea no longer vanished into the lightning.
+
+It left a trail.
+
+Issa’s grain storage method was only the beginning.
+
+Students in a distant city read about it and tried it themselves. They adjusted the thickness of the ash layer for wetter climates. They documented the improvement and sent it back through the Harbor for Ideas, linking it directly to Issa’s original entry.
+
+Soon another group added a low-cost lid design.
+
+Then another shared a way to scale the storage pots for larger harvests.
+
+Each contribution built on the last.
+
+And every name remained visible.
+
+It was no longer about who arrived first.
+
+It became about who helped next.
+
+Innovation turned into a chain — not a race.
+
+In villages across Burkina Faso and beyond, something shifted.
+
+Children were taught not just to learn, but to observe.
+
+Teachers encouraged them:
+
+“If you discover something helpful, send it home to the Harbor.”
+
+Young minds began to look at everyday challenges as opportunities to contribute to mankind.
+
+Water problems.
+Food storage.
+Teaching methods.
+Simple machines.
+Health practices.
+
+The underserved were no longer just recipients of solutions.
+
+They became sources of them.
+
+Places once known only for need slowly became known for ingenuity.
+
+Afroingenuity wasn’t a slogan.
+
+It was a living reality.
+
+With remembrance in place, conflict began to fade.
+
+Where arguments once arose over who created what, now the record spoke calmly.
+
+Not with authority.
+Not with force.
+
+Just with truth.
+
+“This was shared here first.”
+“And this improvement came next.”
+
+Disputes turned into discussions.
+
+Competition turned into collaboration.
+
+The energy once spent protecting ideas was now spent improving them.
+
+Across the globe, a new culture quietly formed.
+
+People still built businesses.
+
+Markets still thrived.
+
+But alongside profit grew something deeper:
+
+Respect for contribution.
+
+Schools celebrated students whose ideas helped others.
+
+Communities honored originators whose solutions spread far.
+
+Recognition became a form of wealth — not replacing money, but standing beside it.
+
+Humanity was rediscovering something ancient…
+
+With modern tools.
+
+The instinct to share.
+
+The honor of remembrance.
+
+The power of building together.
+
+The lightning still moved fast.
+
+Ideas still traveled overnight.
+
+Virality still came and went.
+
+But now, beneath the speed, there was something steady.
+
+A permanent memory.
+
+A global campfire that never went out.
+
+Through SendIdeasHome (SIH), ideas flowed freely.
+
+Through BlockyRight, origins remained protected without being locked away.
+
+Through the ladder of Own a Word, Own a Phrase, Own a Concept, even the smallest contribution could grow into something world-changing — while always pointing back to where it began.
+
+And so humanity stepped into a new era.
+
+Not a rejection of the modern world.
+
+Not a return to the ancient one.
+
+But a blending of both.
+
+Speed with memory.
+Sharing with honor.
+Progress with provenance.
+
+In this world, the underserved were no longer invisible.
+
+Their ideas shaped cities they had never seen.
+
+Their solutions fed families across oceans.
+
+Their names became part of mankind’s story.
+
+The river and the lightning had finally learned to move together.
+
+And the future of innovation belonged — once again — to everyone.
 ## Provenance Footer (Vault Standard)
 
 **Artifact Type:** Narrative (Foundational Chapter)
